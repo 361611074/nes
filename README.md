@@ -1,2 +1,2 @@
 # nes
-https://nes.heheda.top
+https://life.ccava.net
